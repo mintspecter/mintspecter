@@ -1,5 +1,7 @@
 # WHAT A WONDERFUL MINT
 
+![WHAT A WONDERFUL MINT](568af55c-43a8-417a-9ae6-fb14c24744f9.webp)
+
 Guided by the motto '**I have no idea what I'm doing. Maybe doing everything?**', I navigate my days with an insatiable curiosity. This reflects in my diverse interests, where each day is a new adventure in learning and exploration.
 
 Just like the refreshing essence of mint that clears my mind, I find my creativity sparked by the most unexpected inspirations. This preference goes beyond mere taste; it symbolizes my approach to embracing new ideas and unconventional methods with open arms.
