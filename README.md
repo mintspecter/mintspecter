@@ -1,4 +1,4 @@
-# WHAT A WONDERFUL MINT
+# Tech Enthusiast with a Thirst for Knowledge
 
 ![WHAT A WONDERFUL MINT](958eefb1-7780-4ccd-8b5d-7b30c148f62f.webp)
 
